@@ -1,4 +1,6 @@
 - 👋 Hi, I’m @MoTheAmazing
 - 👀 I’m interested in cars, tech, python
 - 🌱 I’m currently learning python
-- 📫 How to reach me Discord: MoTheAmazing#0343
+- 📫 How to reach me
+- Discord: MoTheAmazing#0343
+- Reddit: MoTheAmazing
